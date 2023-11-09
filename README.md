@@ -15,5 +15,5 @@
 关键词：海外抖音，facebook，跨境电商，短视频直播，翻墙出海，2023年末最新最稳定的加速器，英语学习
  
 <img src="https://github.com/laomaovpn/tiktok/assets/150375772/2fc9994c-ad21-4849-883b-b10547c3b9cc" height="500" />
-<img src="https://github.com/lanmaovpn/facebook/assets/150375772/d222a452-7239-43aa-a268-0cad74e9a463" height="500" />
+<img src="https://github.com/lanmaovpn/facebook/assets/150375772/d222a452-7239-43aa-a268-0cad74e9a463" height="520" />
  
