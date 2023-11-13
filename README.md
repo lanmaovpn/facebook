@@ -8,7 +8,7 @@
   
 2.输入优惠券领取会员，并开起蓝猫加速：4Tp5Pipw  
   
-3.下载tiktok：https://apkpure.com/tiktok-musically/com.zhiliaoapp.musically  
+3.下载facebook： https://www.apkpac.com/app/com.facebook.katana?details=dl&gad_source=5&gclid=Cj0KCQiAr8eqBhD3ARIsAIe-buMmMh82BYIeWxaMBklN4xVAvGiEVndlNpvGbOvY6ND--ALDezV8f1saAnbKEALw_wcB
   
 4.安装即可用  
 
